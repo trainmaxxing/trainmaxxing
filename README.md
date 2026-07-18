@@ -1,1 +1,1 @@
-![Image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ3HUS1AYV2aysl7JF1WiFZBrIF0lz7Ks2DO12EyKyiskSRapKeT7-zf94&s=10)
+<img width="553" height="378" alt="shinhjidihpresseduntinteduncropped (1)" src="https://github.com/user-attachments/assets/f4894705-ac41-4bd3-87e9-3d6f79642aea" />
