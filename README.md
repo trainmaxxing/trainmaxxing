@@ -1,2 +1,2 @@
-<img width="761" height="641" alt="shinjiwbgpeakwithouticon-removebg-preview" src="https://github.com/user-attachments/assets/8a3b65c9-51a0-44be-94dd-fe93bc7c62ed" />
+<img width="768" height="624" alt="shinji" src="https://github.com/user-attachments/assets/62bf446b-ebdb-4c2c-a16f-23e1c10148b3" />
 
